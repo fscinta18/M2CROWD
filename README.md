@@ -33,9 +33,7 @@ Always thoroughly investigate the companies/people with whom they will work or h
 
 * M2CROWD LinkedIn Fraud Scam: [https://www.linkedin.com/feed/update/urn:li:activity:6590329554789818369/](https://www.linkedin.com/feed/update/urn:li:activity:6590329554789818369/)
 
-* M2CROWD YouTube Fraud Scam: [https://www.youtube.com/watch?v=WiL0v9YHGAY](https://www.youtube.com/watch?v=WiL0v9YHGAY)
-
- <iframe src="https://medium.com/media/d64c1a8837923d9e712d033cab9cb489" frameborder=0></iframe>
+* M2CROWD YouTube Fraud Scam: [https://www.youtube.com/watch?v=WiL0v9YHGAY](https://www.youtube.com/watch?v=WiL0v9YHGAY) 
 
 There are also other people who are fighting with them, so they already created groups, review, etc. to opposite them, you can check it here:
 
